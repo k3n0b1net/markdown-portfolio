@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I got my **temper** from my father's side , my _pizzaz_ from my mothers side , and the eminem look from peroxide . ***ba dum tum tiss***
